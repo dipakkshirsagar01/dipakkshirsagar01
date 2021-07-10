@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @terrortom8086
-- 👀 I’m interested in:- Ethical Hacking
+- 👋 Hi, I’m @terrortom8086/dipakkshirsagar01
+- 👀 I’m interested in:- Ethical Hacking and web designing
 - 🌱 I’m currently learning:- BSC-IT TY
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:- DM and Follow Me on instagram @dipakkshirsagar01
